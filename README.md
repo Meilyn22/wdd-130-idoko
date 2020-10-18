@@ -1,1 +1,1 @@
-# [Samson Idoko]
+# [First Name Last Name]
